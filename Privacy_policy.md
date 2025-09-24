@@ -36,6 +36,6 @@ We may update our Privacy Policy from time to time. Changes will be posted in th
 
 ## Contact Us
 
-If you have any questions about this Privacy Policy, please contact us at: [your-email@example.com]
+If you have any questions about this Privacy Policy, please contact us at: [vishnusimhaplaystore@example.com]
 
 ---
